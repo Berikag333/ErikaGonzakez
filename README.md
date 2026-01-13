@@ -8,10 +8,13 @@
 MBA in Digital Marketing | Data Analytics | PR & Communications  
 
 ...
-# 👋 Hi, I'm Erika 
 
-**Bilingual Digital Marketing & Data Analytics Specialist (MBA)** with 7+ years of experience in **leadership, communications, and customer success**.  
-I combine **creative marketing strategies** with **data-driven insights** to deliver measurable business impact.  
+## 👋 Hi, I’m Erika
+
+Bilingual Marketing & Data Analytics Specialist (MBA) with 7+ years of experience across digital marketing, communications, and customer-focused strategy.
+
+I work at the intersection of **marketing intelligence, data analysis, and business strategy**, combining analytical thinking with creative execution to support data-driven decision-making, customer segmentation, and measurable business impact.
+
 
 ---
 
